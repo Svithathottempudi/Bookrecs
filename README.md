@@ -2,6 +2,7 @@
 
 Welcome to my personal collection of book reviews and reading recommendations!  
 Here you'll find honest reviews, ratings, and curated lists to help you find your next great read.
+enjoy your reading!!
 
 ---
 
